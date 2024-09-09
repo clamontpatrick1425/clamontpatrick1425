@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @clamontpatrick1425
 - 👀 I’m interested in pursuing AI Solutions or Blockchain Architect, or AI Project management
 - 🌱 I’m currently learning the concepts of LLMs, Machine Learning, and Blockchain
-💞️ I’m looking to collaborate on various projects. I am just a beginner who wants to understand what's behind the hood.
+💞️ I’m looking to collaborate on various projects. I am just a beginner who wants to understand what's under the hood.
 - 📫 How to reach me @ clamoontpatrick@gmail.com, @ linkedin.com/in/calvinpatrick and on x @calvinpatrick 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I drove a NASCAR  @ Charlotte Motor Speedway
